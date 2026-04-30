@@ -33,8 +33,8 @@ I am an **Information Systems Student** at Politeknik Negeri Subang (POLSUB) wit
 ---
 
 ### 📱 Connect with me
-*   **Instagram:** [@fathz_19]([https://instagram.com/alfathnh](https://www.instagram.com/fathz_19?igsh=MTVyc2Q3cW0ybXhsOQ==)_) 
-*   **Youtube:** [alfathnoor11]([https://linkedin.com/in/alfath-noorislami-herawansyah](https://youtube.com/@alfathnoor11?si=kq2raUaoa7TnCb7G))
+*   **Instagram:** [@fathz_19](https://instagram.com/alfathnh](https://www.instagram.com/fathz_19?igsh=MTVyc2Q3cW0ybXhsOQ==)_) 
+*   **Youtube:** [alfathnoor11](https://linkedin.com/in/alfath-noorislami-herawansyah](https://youtube.com/@alfathnoor11?si=kq2raUaoa7TnCb7G))
 
 ---
 
