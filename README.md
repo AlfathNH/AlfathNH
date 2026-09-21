@@ -26,7 +26,7 @@ I am an **Information Systems Student** at Politeknik Negeri Subang (POLSUB) wit
 ---
 
 ### 🎮 Interests
-*   **Persona Series** (Mostly P3 Reload, Persona 4 Gold, P5 Royal, and P5X).
+*   **Persona Series** (Mostly Persona 3 (Portable and Reload), Persona 4 Gold, Persona 5 (Royal and Strike), and P5X).
 *   **Resident Evil Series.**
 *   **Kingdom Hearts Series.**
 
